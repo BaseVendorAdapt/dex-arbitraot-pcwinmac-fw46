@@ -1,4 +1,4 @@
-# 
+# Open Source dex arbitrage bot plugins for Mac OS | Best dex arbitrage bot plugins for PC Windows. Featuring private key management and cross-margin support — optimized for maximum performance on every platform.
 
 
 
